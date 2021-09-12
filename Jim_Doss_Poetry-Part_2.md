@@ -225,7 +225,8 @@ meant to be saved, only endured, adapted to
 in its evolution.  We departed at the same stop,  
 still strangers, twins separated by forty years,   
 a single heart that divided like a cell, as we headed off  
-in different directions, our footsteps fading into echoes.  
+in different directions, our footsteps fading into echoes.
+in different directions, our footsteps echoing into darkness.    
 
 ***
 ***
@@ -337,7 +338,7 @@ who are these people whose DNA hides
 inside you, whose words pass to your lips  
 like an oath of hushed betrayal?   
 Your hair, fingernails grow to   
-fullness, yet the sea casts                           
+fullness, yet the sea casts                       
 its tides against you.    
 Into someone’s  
 outstretched hands  
@@ -1410,7 +1411,7 @@ allow us to be
 ***
 ***
 
-** Protection
+## Protection
 
 You grip the burnished stock and barrel,    
 cold and imprecise, as though it were a handshake   
@@ -1441,7 +1442,7 @@ peering into the endtime.
 ***
 ***
 
-el lector
+## el lector
 
 Some days I felt I could be Teddy Roosevelt riding high in the saddle  
 charging the hills of San Juan.  But what was there to conquer?  
@@ -1603,7 +1604,7 @@ a thousand different ways the lost road
 that leads straight to her cabin  
 where her dogs eat whatever the gun  
 kills the moon trolling in the shallows  
-of the meadow for love-sick men 
+of the meadow for love-sick men   
 only to throw them back into its cruel calculus  
 that plots the limits of emotion  
 but no it can’t be like that  
@@ -1736,9 +1737,9 @@ to yourself, my love, like diamonds
 hardening in the sediment of our passion.  
 
 I have two kingdoms of firewood in my soul,  
-two pans of cornbread in the oven  
+two fillets of cod in the oven  
 longing for the blue aurora of flame,   
-and two keyholes peering into darkness.  
+and two keyholes peering into total darkness.  
 
 Beneath closed lids a world becomes real   
 as what you see and touch  
@@ -2115,9 +2116,62 @@ when I hear the *pssst* of the bottle opener
 I know I am restored  
 I was made for this rapture  
 
+***
+***
+***
+***
 
+## Basement Barbershop
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*for Fate Brown*
 
+Who would trust a barber named Fate,  
+with Coke bottle glasses  
+magnifying his eyes  
+to double normal size,  
+whose hands explored his counter  
+like a blind man looking  
+for scissors or comb,  
+who cut as much by feel as sight?  
 
+Yet each Saturday men and their sons piled  
+down the stairs into his shop  
+to gossip about the latest goings-on  
+at church, hunting, football or baseball.  
+Hours they would sit twisting the truth     
+as the coal stove with its growling belly  
+awaited the next gulp,  
+and the jokes and stories grew more fantastic.  
 
+Two chairs for one barber, the carpet  
+of hair under foot grew thicker,  
+and when my turn came I sat  
+on a wooden plank hooked to the chair arms  
+as I heard the buzz of clippers,    
+smelled the Vitalis and talc,  
+before feeling his hand on my head,  
+measuring, positioning for the next cut.  
+
+Usually a flick of ear or a honk on the nose  
+signaled we were done, as I paid him 50 cents   
+and he always handed me back a quarter  
+with a pat on the head.  
+My father, whose hair   
+never got a chance to grey,  
+went next, blind to what awaited him,  
+that long, sad journey home.       
+
+Now they're all dead and buried,  
+whether they came by car or bus,   
+their hair growing long  
+and beautiful as death itself,  
+no longer in need of trim or shave,  
+yet their joy-filled "exaggerations" still linger  
+like the smell of tobacco smoke  
+in Fate's damp, musty basement air.   
+
+***
+***
+***
+***
 

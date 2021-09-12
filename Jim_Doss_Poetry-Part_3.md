@@ -7,7 +7,7 @@ Perhaps, if only things were different than they appear.
 Conceivably, if my power ball numbers hit tonight  
 or I trip over my fairy godmother staggering home.  
 
-Stranger things have happened, Lord knows. 
+Stranger things have happened, Lord knows.  
 Lightning could carve its mark on my forehead.  
 The finger of God could strike me blind.  
 My testicles could shrivel into BBs.  
@@ -78,7 +78,7 @@ a shock of red hair dripping
 onto my shoulders  
 like overcooked cabbage, face  
 gaunt as a Celtic death mask.    
-I wanted to grow up on the lower east side
+I wanted to grow up on the lower east side  
 shoot hoops on rusted metal rims,  
 hear the music of leather against iron,  
 sniff glue to the Stones singing  
@@ -97,7 +97,7 @@ recording the DNA of all the dirty angels
 that cruised my alley-way dreams  
 at night. Let me be Andy Warhol's  
 gofer at The Factory, make me the om   
-in Ginsberg's chant, photograph me 
+in Ginsberg's chant, photograph me   
 as Maplethorpe's piss christ,  
 dress me up as Patti Smith's rock 'n' roll nigger.  
 Then set the guitar in my hand,  
@@ -106,7 +106,7 @@ extracted from the shit of life
 to smite the smug and self-righteous,  
 spark the fires of redemption  
 in the oily sewers of my season in hell  
-as I rise like a phoenix on the pure lip of flame.  
+as I rise like a phoenix on pure lips of flame.  
 Finally, let me die at my desk on 9/11,  
 any 9/11, the hour before the planes  
 hit the World Trade Center,   
@@ -669,7 +669,7 @@ you tell drip with the truth, boy-strong, eating away at the brain
 like raindrops of cancer.  You’re constantly being reborn  
 without myth, your heroes, their victims, beyond each era’s  
 tragically black comedy.  Only the daintiest of poets   
-would perfume the roses in a garden, while I quake 
+would perfume the roses in a garden, while I quake  
 at the sound of your Redwings’ ax strokes across the dock.  
 Any dog can sniff out where you’ve left your bullets of love,  
 but why should I not believe in your tongue, that raft  
@@ -1449,7 +1449,7 @@ expressionless, hitching their coats
 tight around their necks,   
 careful not to look up,   
 even for a moment, into our eyes   
-that glimmered like wishing wells of silence.  
+glimmering like wishing wells of silence.  
 
 ***
 ***
@@ -1463,17 +1463,74 @@ Four-thirty AM.  It's always four-thirty AM,
 the battery frozen in time like a sports reel.  
 I see the black of the scorpion clinging   
 to the stucco wall, the curve of its tail  
-questioning my very existence.  
+that questions my very existence.  
+It drops into a glass whose walls  
+it can't climb as it now sits on the counter,  
+its legs failing to grip the smoothness.  
+I step outside into the air still cool with night   
+as the sun beings its steep climb on the horizon.   
+Coyotes retreat up the wash to their caves  
+in the mountains after a night hunting  
+in single file like soldiers,  
+their blood curdling screams of success  
+just a memory of a dream in a distant land.  
+The prickly pear sharpen their thorns  
+and the saguaro lean a little taller   
+into the coming heat.  I turn on the butane burner  
+to brew a cup of coffee, lower the sheets   
+over the windows.  The radio's batteries      
+barely hold a charge, but I can hear the static  
+of another world coming through,  
+the faint voices of people talking  
+hundreds of miles away, as though my wilderness   
+world no longer existed, and their lives   
+were the only things that contained meaning.  
+I need to hear their voices each day to know I'm right.    
 
+***
+***
+***
+***
 
+## When the Skies Opened
 
+According to mother  
+her belly curled   
+like an upside down question mark,  
+a Spanish phrase planted in native soil,  
+an interrogative clause in search of being,  
+the immaculate statement of purpose  
+for a fifteen year old laying on the bed sobbing  
+no longer able to hide the angel inside,  
+or make it disappear into the night.  
+She could feel its gentle kick,  
+the heartbeat like a clock    
+measuring the time until arrival,  
+that earthquake that would bring us  
+back down into humility,  
+the place where we all began. 
+ 
+According to father  
+that bastard Enrique was going to pay.    
+No more sneaking around  
+with every girl in the neighborhood,  
+no more firefly serenades  
+with wine and campfires.  
+no more rides in the gansta mobile  
+or flashing hand signs to his homies.  
+Enrique was going to do the honorable thing,  
+be a father and provider,  
+give up the street corner drug deals,  
+the easy hustles.  His family would not be  
+so dishonored, his daughter defiled and abandoned.  
+He would bring all the rain from heaven down on Enrique  
+until he was trapped on a tiny island   
+where he could not escape.  
 
-
-
-
-
-
-
+***
+***
+***
+***
 
 
 
