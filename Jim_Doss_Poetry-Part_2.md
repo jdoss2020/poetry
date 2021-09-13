@@ -1068,6 +1068,11 @@ burning like a flame
 that consumes the tallow of my love  
 until it is gone and I wake  
 
+***
+***
+***
+***
+
 ## Touched
 
 Like a dog with two tails  
@@ -1724,26 +1729,26 @@ Your hands could pass for a strangers',
 gripping the sheet that wraps  
 my comaed body, blue veins coursing  
 like the waterways I used to navigate  
-to reach your heart.  Full sail,  
 
+to reach your heart.  Full sail,  
 I wonder if I'll ever come home again,  
 the traveler in love with travel,  
 circumnavigating the arctic seas  
-of the brain. Tears only feed  
 
+of the brain. Tears only feed  
 the churning waters, surging  
 white against the hull.  Keep them  
-to yourself, my love, like diamonds  
-hardening in the sediment of our passion.  
+to yourself, my love, diamonds  
 
+hardening in the sediment of our passion.  
 I have two kingdoms of firewood in my soul,  
 two fillets of cod in the oven  
 longing for the blue aurora of flame,   
-and two keyholes peering into total darkness.  
 
-Beneath closed lids a world becomes real   
-as what you see and touch  
-trying each day to wake me back to life with a kiss.  
+and two keyholes peering into total darkness.  
+Beneath closed eyelids a world becomes real   
+as what you see and touch each day  
+trying to wake me back to life with a kiss.  
 
 ***
 ***

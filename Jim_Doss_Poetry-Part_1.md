@@ -1493,38 +1493,6 @@ that’s why I’m here
 ***
 ***
 
-## The Voyager
-
-Your hands could pass for a stranger’s,  
-gripping this sheet that now wraps  
-my body, blue veins coursing  
-like the waterways I used to navigate  
-
-to reach your heart. Full sail,  
-I wonder if I’ll ever come home again,  
-the traveler lost without a sextant,  
-circumnavigating the arctic oceans  
-
-of the brain. Tears only feed  
-the churning waters, surging  
-white against the hull. Keep them  
-to yourself, my love, diamonds  
-
-hardening in the sediment of our passion.  
-I have two kingdoms of firewood in my soul,  
-two north stars longing to light the way   
-through the auroral darkness.  
-
-Beneath closed lids a world  
-becomes real as what you see and touch   
-trying each day to wake   
-me back to life with a kiss.  
-
-***
-***
-***
-***
-
 ## Blue II
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The dark blue sky is spotted with clouds of an even darker blue than the fundamental   
