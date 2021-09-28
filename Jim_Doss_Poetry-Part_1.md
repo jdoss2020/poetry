@@ -587,7 +587,7 @@ What are we, his students, to conclude using the Socratic method as his house bu
 
 ## First Love
 
-Dawn’s breathe crystalizes in the grass on either side of the street.  
+Dawn’s breathe crystallizes in the grass on either side of the street.  
 My shadow strides forward twenty paces ahead of me  
 with a confidence I never had.  No one’s out this time of morning,   
 save a stray farm hand or two.  I hear one starting up the red  
@@ -613,7 +613,7 @@ snoozing in their tents after a long night of cotton candy,
 fortune telling, ring tosses, merry-go-rounds and bumper cars.  
 It was here last night when the unexpected happened,  
 when the plainest of Becky’s took my hand at the top   
-of the ferris wheel and the whole world began to spin like vertigo,   
+of the Ferris Wheel and the whole world began to spin like vertigo,   
 my eyes going round and round, my body hot and sweaty   
 against the cool night air.  What was this feeling I want to experience  
 again and again, unpleasantly pleasant, awkward, speechless?  

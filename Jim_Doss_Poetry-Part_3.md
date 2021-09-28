@@ -269,7 +269,7 @@ He speaks, but the words can never catch up.
 You are the cigarette dangling from pursed lips, and I,  
 I am the match that flares to illuminate your features,    
 casts the shadow of your profile into deeper nuance   
-until the mystery that is hidden behind layers of mascara 
+until the mystery that is hidden behind layers of mascara   
 flakes down like ash to soften this black and white shot,  
 and the director zooms the camera lens in tighter to capture  
 the smoke that questions our being, the kiss of lipstick,  
@@ -278,7 +278,7 @@ like bootlegged liquor.  I don’t know if you’re the secret
 of secrets, the one who has no name, the words my soul  
 burnt itself up to hear.  You smell like a rose plucked  
 from the barrel of a Tommy gun, so dirty only fire  
-can make you clean.  I bring you my drop of blood, 
+can make you clean.  I bring you my drop of blood,   
 my tear of sulfur and all the hurt one life can muster.  
 My body is left spent on the sidewalk, the glow dimming  
 in my eyes as you slip through the gathering crowd,  
@@ -304,7 +304,7 @@ well-trampled, where they settled for the night grew into a home,
 a place where the branches weaved a roof above our heads.  
 Here I came to love these dirty fingerprints they left on your body,  
 the smear of their lips on your month, the dregs they left in your soul   
-that longed to be replenished.  Here you grew to cherish the ash 
+that longed to be replenished.  Here you grew to cherish the ash   
 and charcoal that is my eyes, my lungs, my spleen, and the blood  
 that flows through my veins like acid.  The skull  
 of the small animal they ate, its bones, are scattered in the shape  
@@ -379,7 +379,7 @@ I knew I must make myself small as a speck of dust carried unseen on the wind.
 I must hide where not even the badgers can go,  
 veined like minerals, untouched by shovels, sleeping the deep sleep of the earth.  
 I must have the tenacity of rust hiding beneath the paint of an iron bridge,   
-growing below the exterior in the darkness and rain  like a cancer. 
+growing below the exterior in the darkness and rain  like a cancer.    
 I must be so strange He will look past me in pity and embarrassment  
 He could have created such a creature.  I must never comb my hair,  
 carry the snag of cockleburs with me like the vermin of a plague,  
@@ -502,7 +502,7 @@ to wash away the pain of what can't be undone.
 ##  Saved
 
 It could have been the copper penny  
-you tucked into the crease of your loafer 
+you tucked into the crease of your loafer   
 after it was flattened on the train trestle   
 as the locomotive shook 
 the blue out of the sky.  
