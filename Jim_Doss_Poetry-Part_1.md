@@ -1650,7 +1650,7 @@ replenish our desire to once again become one with infinity.
 
 ## 1965
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*after Lorca*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*after Garcia Lorca*
 
 These eyes of mine in nineteen-sixty-five  
 saw no one dead and buried,  
@@ -1761,5 +1761,594 @@ into theorems that defy proof.
 ***
 ***
 ***
+
+## The Next One
+
+The boy’s model plane wings    
+cast a shadow that looked like Jesus,    
+head bowed and bleeding, hanging    
+on the wooden cross above the pulpit on Sundays.    
+He ran them slowly along the chalky walls    
+of the the airport terminal as they waited    
+while his family waited for her flight to land.    
+His father paced like a nervous hen.    
+His mother stared stoic as a Roman statue.    
+He watched them both as the shadow    
+of the cross swept across their features    
+and they grew irritated with his frivolities,    
+pushed him away with eyes    
+cold as steel nails. Her plane     
+was always late, which only intensified     
+the dread of these visits, a pulse     
+increasing steadily like the sound     
+of marching soldiers growing closer.      
+But she was just one person, a force    
+of good out to save everyone     
+she spoke to, without exception.  He saw     
+her plane’s wings tip back and forth     
+as the wheels touched down in a puff of smoke,    
+skidded to a halt.  When the door opened,    
+she was first to deboard, majestic    
+in her 1940’s style tailored suit,     
+not a speck of makeup out of place,    
+her Bible clutched against her breast,    
+her eyes probing their souls for darkness,    
+any spark of sulfur since the last visit,    
+those little hell-fires only a matriarch can see.    
+
+***
+***
+***
+***
+
+## Dear Child of the Future
+
+Today you are just a black and white image    
+on a sonogram, everything placed just where it should be.    
+
+Tomorrow you will emerge, trembling with screams,    
+into the harsh light of this world, to the breast of your mother.    
+
+What can I give you now to make your journey less harsh?    
+Nothing, I’m afraid.  Nothing but words to guide     
+and sooth your entry into life.  Not exactly sage wisdom.    
+
+This morning we saw the hawks circling overhead,    
+calling out to each other on the hunt    
+for their next meal of rabbit or squirrel.    
+
+We are all hawks in our own way, circling    
+that which nourishes us the most    
+in our pursuit of love, knowledge, and understanding.    
+
+Always err on the side of freedom and responsibility.    
+Resist the urge to follow the fear-mongering of politicians    
+and the media who want to herd you to safety    
+to protect you from their imaginary daemons.    
+
+Hold your true friends close, your family closer.    
+They will be a refuge in times of trouble and crisis,    
+your oasis in a desert of ill-intent.    
+
+Be self-sufficient in every way possible,    
+not dependent or beholding to any entity or person.    
+Shackle your heart to the wind shaking the maples.     
+
+But leave this world a better place    
+than you found it, shrink humanity’s footprint,    
+let forest and animal approach your doorstep.    
+
+And most importantly, when the lilies bloom     
+in your parents’ front garden, holding out their beggar’s cups    
+asking for spare change, think of us,     
+your grandparents, who swaddled you with love,    
+and planted these flowers to celebrate your arrival.    
+
+***
+***
+***
+***
+
+## Saturday Night at the Odd Fellows Home
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*for my mother*
+
+The biscuits were buttered hours ago,    
+the chickens plucked, beheaded, and carved    
+into well-defined pieces just as we    
+were taught, not a morsel wasted,    
+not even the necks and gizzards.        
+Dinner for over one hundred kids    
+of the Great Depression, who served    
+as farm hands, cooks and maids    
+to earn a roof over their heads,    
+a bed, two changes of clothes,    
+three meals a day, and little schooling.      
+But love wasn't part of the bargain    
+if they were lucky.  Love was something     
+they’d left behind in the cabins of their childhood    
+with the ghosts of mother and father.    
+Love was not today’s hand raised     
+in anger or passion by their caretakers    
+who always put on their Sunday best    
+smiles when the occasional visitor arrived    
+and showed the farm’s wonders.    
+Love was something lonely and serene,    
+like dishes piled three feet high    
+on a table by the sinks, like tubs     
+of soapy water to scrub off food    
+smeared on the plates     
+and any streaks of dirty or bruises    
+from an unwanted encounter.    
+It was the peace of being alone    
+for hours doing chores from sunrise    
+to sundown.  It was that zone where nothing    
+mattered anymore and they were invisible    
+to everyone around them     
+as they moved through their day.    
+It was that walk up the stairs at the end     
+of the day to the dormitory of twenty beds     
+in one room, footsteps creaking     
+on the white pine floors, the cold metal    
+door handle opening to a never empty room,    
+ignoring the crude comments heading to the bed    
+by the window where the moon shown    
+in full radiance.  It was finally laying down    
+on the hard, thin hard mattress to gaze at that face    
+over the barn, over the trees, those lips    
+that kept whispering: Come follow me, child,    
+don’t dwell in this cruel place any longer,     
+just pack your belongings and meet me after midnight     
+down by the forge where the sparks fly,     
+you know wherever we’re going has to be better than here.    
+
+***
+***
+***
+***
+
+## Egg
+
+It’s a white dome of sky    
+you can almost touch    
+where the sun barely    
+peeks above the horizon    
+and your world is bathed    
+in an eerie twilight.  There seems    
+to be no way in or out.    
+You keep wandering along the shores    
+of a tranquil sea     
+waiting for battles to rage,    
+armies to clash     
+with swords, armor and spears,    
+but nothing ever happens.    
+Only the soft sounds of seagulls    
+pacing the beaches,    
+and you try to turn their tracks    
+into words to give you direction,    
+companionship, but all around    
+is silence, contemplation,    
+inner focus.  Until that fateful day    
+when clouds begin rolling in,    
+the sky grows black as coal,    
+lightning slices the heavens    
+with a jagged knife, and the earth    
+starts to rumble, then shake    
+as the ground begins to split.    
+You feel yourself falling    
+into a deep well, gravity and pressure    
+pushing you downward.    
+Fear seizes you as plummet    
+through darkness to your certain end,    
+until a blazing light hits your face,    
+nothing like you’ve ever seen before,    
+and you let out a scream    
+as something grips you    
+while you float mysteriously     
+through the air into arms     
+that welcome you, cherish you,     
+give you the name    
+you will call yourself    
+until that day you return    
+to the source of all creation.    
+
+***
+***
+***
+***
+
+## The Mad Hatter’s Postscript to ‘Alice in Wonderland’
+
+Tea time in the forest of delights.    
+It’s always tea time.    
+That’s the way life goes,    
+round and round like a clock,    
+backwards and forwards,    
+spinning in circles like a penny.      
+Alice was such a young thing     
+with an ancient heart    
+that she needed to be shaken    
+like the best cups     
+of Darjeeling tea    
+to bring out those subtle nuances    
+of flavor.  It was up to me        
+and no one else to see     
+this happened as surely as a little girl    
+eats everything she sees     
+and sees everything she eats.    
+The Dormouse drowning     
+in his chocolate stupor,    
+the March Hare marooned     
+in the winter of his soul,    
+what’s a Mad Hatter to do    
+away from the fabrics of his business,    
+the chemical talcum of the brocade,    
+the machines whirring like doves?    
+It was sanity that possessed me    
+to reach out and shepherd this poor girl    
+through the quagmire of reality    
+into the world of dreams and make believe.      
+For what are we without dreams     
+but empty vessels of flesh    
+searching for words that start with M-,     
+anything that starts with M-.     
+And, yes, she will return.        
+She will always return.     
+Every time she closes her eyes    
+it begins anew.    
+
+***
+***
+***
+***
+
+## Orphans
+
+We lived in an abandoned house    
+like mice or racoons, a stream    
+flowing on one side with cool mercurial waters,    
+on the other a rough hewn civil-war-era style fence,     
+still stained with the gunpowder of conflict.    
+
+No one visited us, no one left.  We stole    
+eggs from blue jays and robins, beans,    
+rice, and chicken from the general store,    
+scooped up roadkill in our wanderings,    
+twig fire feasts all across the county.    
+
+We were nothing less than abandoned     
+hubcaps slowly rusting in life’s brambled ditch     
+on the most deserted highways to eternity.    
+
+But we dreamed without sleeping,     
+without waking, our bodies like spirits    
+wandering through other people’s dreams,    
+our invisible hands entering their flesh,    
+packing their lives with existential questions    
+the way a church collection plate gets filled up     
+on Sundays by Saturday night’s biggest sinners.    
+
+We failed to exist in the same way     
+seeds sleep forever encased     
+beneath the tilled garden soil. Yet we were     
+little more than a black wind wherever     
+we went and people passed by, kept passing by,    
+expressionless, hitching their coats tight    
+around their necks without looking up,     
+our eyes little more than wishing wells of silence.    
+
+***
+***
+***
+***
+
+## Calling Elvis
+
+When you’re done you can walk    
+through the door    
+with blood on your sleeve    
+
+in the shape of a smiling fist,    
+a fist that just knocked the crap    
+out of someone.    
+
+You can still feel the needle jabs    
+that infused the indelible ink     
+beneath your skin     
+
+like a song performed so poorly    
+before a bunch of rowdy drunks in a bar    
+that even they took notice.  Now there’s no one     
+
+to witness your long walk into the oblivion     
+of the night, a cork drifting out to sea     
+on the tide of some nameless sorrow    
+
+that you and a hundred Ph.D.’s can’t comprehend.    
+Your lips feel the slight hum of a melody     
+begin to grow, both the joy and pain of roses    
+
+twining together around a trellis of emotion.      
+You can’t think of words to fill the night’s silence     
+but with each step your sleeve grows moister,     
+
+the bandage already tossed in the garbage    
+before you left the artist’s shop.  Now hay    
+unexpectedly flies from the back of a passing pickup    
+
+like a whisper of something strange and exotic.    
+Brake lights paint the night with the squeal     
+of worn tires.  You continue to walk leisurely    
+
+toward your destiny of nothing     
+as a voice calls out, soft and sweet     
+as a cemetery rose. Your name and no other.    
+
+As you enter the truck cab you can see    
+her pink panties inching out around the sides    
+of her high cut blue jean shorts,    
+
+feel her hand brushing against yours    
+like a flower in search of its bee.  Your arm    
+aches like your heart with loneliness, mistrust.    
+
+Yet that face bleeding through your skin and shirt    
+clears its throat, begins to whisper and hum    
+“Are you lonely tonight.”  You feel yourself    
+
+singing along, only slightly out of tune    
+as you pass fields of horses, cattle,    
+and that smile back tells you to keep going.    
+
+***
+***
+***
+***
+
+## Doppelgänger
+
+Craziness just oozes out    
+of the jail of the mirror,    
+its cruel confines.  Trapped    
+there for what seems a lifetime    
+his eyes burn     
+through your body    
+like solar flares,    
+the envy, the remorse.    
+Yet somehow he escapes    
+to follow you like a stalker    
+everywhere you go, draining    
+your life-blood with his eyes,    
+haunting your conversations    
+with words not said,     
+taunting your loved ones     
+with what could have been.    
+He’s armed not with bullets,    
+but that powerful potion of self-doubt    
+he sprinkles around rooms    
+just before you enter.    
+You can sense it all around,    
+an intoxicating fragrance    
+corroding your soul,        
+twisting your tongue    
+until you are speaking     
+in another language     
+that makes no sense to anyone.    
+And all the while he is there    
+pursuing you     
+in every pane of glass    
+with a wild-eyed grin    
+saying I am that person    
+you deserve to be.     
+I am your destiny.    
+
+***
+***
+***
+***
+
+## Still Life with Woodpecker
+
+Alone    
+inside four walls    
+made of southern pine    
+a twelve by twelve by eight box    
+this diminutive universe of solitude    
+without a road running past    
+without any wires strung overhead    
+or buried underground    
+with windows that look out    
+onto fir branches    
+and brambles of raspberries    
+
+Alone     
+with a bowl of apples    
+blushing on the table    
+a battery powered radio    
+the feral darkness encroaching    
+like a villain ready to steal    
+whatever beauty remains    
+the blue cybernetic eye    
+of a paperweight weighing down    
+my thoughts of a past    
+that may or may not have existed    
+
+Alone     
+with a rotary telephone    
+plugged into nothing    
+but the spirits of friends and family    
+their silent voices     
+on the other side whispering    
+unhearable secrets    
+of the burdens they bear    
+from this life into next    
+the graves they’ve dug    
+for themselves and their loved ones    
+
+Alone    
+with so much I want to forget    
+to relive differently    
+as distant stars spiral into a cosmos    
+of swirling nebulas on the ceiling    
+these encyclopedias of images    
+arriving randomly like the tap tap tap    
+of a woodpecker’s beak    
+against a rotten tree    
+the treat always hidden from plain sight    
+but unforgettable when found    
+
+***
+***
+***
+***
+
+## A Day of Cardinals
+
+Bird feathers    
+on the sidewalk    
+as I step out the door,    
+red, bloodless.      
+
+No night screams     
+from foxes on the hunt    
+cornering their prey.    
+
+Just four am window chatter,    
+cardinals beginning the day    
+in weeping cherry leaves.    
+
+I hear their wingbeats    
+like the soft rhythms    
+of my lover’s heart    
+as she sleeps     
+while I can’t.    
+
+I hear songs     
+of laughter     
+as their hard     
+orange beaks    
+
+chase night    
+from leaves    
+and red berries.    
+
+But where     
+do they go to sleep     
+and are they as restless     
+and irreconciled as me?    
+
+In the frolicking dawn air    
+one feathery mystery    
+gives way to another.    
+
+***
+***
+***
+***
+
+## Green
+
+The last oil rig ground to a halt,    
+it’s big piston no longer    
+turning round and round    
+like a Ferris Wheel    
+to pump liquid gold    
+out of the ground.    
+
+Gasoline powered cars    
+sat abandoned in ditches,    
+rusting beneath flaking    
+paint jobs, leaking battery acid,    
+their upholstery riddled    
+with rats and roaches,    
+home to any hobo    
+who could defend     
+this sacred lair from invasion.    
+
+We walked everywhere    
+we traveled, past streetcars    
+starved for electricity,    
+the occasional spurts of movement    
+from their useless, ghostly hulks.    
+The rich flipped us the bird    
+and shouted crude names    
+as their eclectic vehicles     
+speed past.  But like weeds    
+our numbers grew and grew.    
+
+The summers were no hotter,    
+winters no colder than before.    
+We settled into basements    
+as the pipes froze, the walls     
+mildewed and crumbled,    
+the heat pump fans    
+fans corroded and Freon leaked    
+from the coils.  We grew     
+what food we could,    
+hunted and bartered    
+for anything we could eat    
+as our ribs and hips    
+protruded like those of prisoners    
+in a concentration camp.    
+
+But the politicians celebrated,    
+and celebrated, in the Capitol,    
+In the White House, in elite    
+restaurants with the best    
+food and drink. The pictures    
+of their victory covered newspapers,    
+billboards and inundated the airwaves    
+for anyone who could    
+receive a TV signal.  Yet in the back alleys    
+we heard the hum of the generators,    
+felt the electricity flowing     
+through the wires    
+to where they danced,     
+partying throughout the night.    
+And in the motor’s sound    
+we knew their fate was sealed.    
+
+***
+***
+***
+***
+
+## Memory, Stay Awake
+
+Keep me from falling under the spell of forgetfulness.      
+Don’t let me squander what little grey matter I have left.     
+History can so easily disappear into otherworldly     
+nebulas of darkness.  Just ask big tech, the news media     
+
+and politicians who try to lead us down the path of groupthink.      
+Let my brain function freely to remember all the atrocities     
+committed in the name of justice, the assassins and their victims,     
+the reeducation camps, the masters of treachery.      
+
+Ensure I never forget those who died in the gulags,     
+the gas chambers, and pointless war after pointless war.     
+Cement them into my heart where they cannot escape    
+into a bonfire of bodies rising up into the uncaring night air.        
+
+Make them impervious to the deniers    
+who would erase their fate with golden phrases    
+of deceit and omission.  Let me recall both    
+the good and evil, as I read letters from their loved ones    
+
+never delivered to the mass graves.  Skull after skull     
+surfaces in my mind, the names recorded     
+on the scroll of time, each saying remember me,    
+remember me for I could be your destiny.    
+
+
+
+
+
+
+
+
+
+
+
 
 

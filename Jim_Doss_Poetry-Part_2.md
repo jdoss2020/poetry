@@ -1639,37 +1639,38 @@ hunger we were born from
 ## Opening The Letter Once More
 
 
-The heart at rest after its last beat.   
+The heart at rest after its last beat.    
 
-The words still clutched in hand  
-squirm and stagger   
-through their awkward emotions.  
+The words still clutched in hand    
+squirm and stagger     
+through their awkward emotions.    
 
-It's always this way.  
-No matter how many times the paper is unfolded,  
-the scene played out in imagination.  
+It's always this way.    
+No matter how many times the paper is unfolded,    
+the scene played out in imagination.    
 
-Outside wild turkeys glean corn stubble,  
-scratch their hieroglyphs into moist soil   
-for the young foxes to decipher. 
+Outside wild turkeys glean corn stubble,    
+scratch their hieroglyphs into moist soil    
+for the young foxes to decipher.    
 
-From the back of pickups  
-hunters spotlight anything that glows back,   
-teaching their sons how to be men.    
+From the back of pickups    
+hunters spotlight anything that glows back,     
+teaching their sons how to be men.      
 
-The moon hangs its lantern in the trees,  
-spills blood across yellow pine floors  
-where cold feet lie in laceless shoes.  
+Bats dart between the glittering insects    
+to where night flows like a river    
+into an infinite abyss.    
 
-Bats weave between the flights of glowing insects  
-to where night flows like a river  
-into an infinite abyss.  
+The moon spills its blood    
+across yellow pine floors    
+where cold feet lie in laceless boots.    
 
-And you are lost here, lost  
-within the memories of an unworthy survivor  
-searching the graffiti-filled catacombs of your mind.  
+And you are lost here, lost    
+within the memories of an unworthy survivor,    
+searching the graffiti-filled catacombs of your mind.    
 
-Somewhere amid these lies you’ll find an everlasting truth.  
+Somewhere amid these lies you’ll find an everlasting truth.    
+  
 
 ***
 ***

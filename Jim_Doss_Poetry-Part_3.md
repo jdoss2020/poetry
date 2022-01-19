@@ -3831,14 +3831,14 @@ of victory in foreign lands, a liberation.
 ## Earthquake Park
 
 You stand where the earth collapsed decades ago,     
-never to be resurrected, looking up at a city     
-rising over the heads of the joggers who come to burn     
-off their winter fat or relieve the stress of the workday,     
+never to be resurrected, looking at a city     
+rising above the heads of joggers come to burn     
+away winter fat or relieve workday stress,     
 reading signs that describe that awful day     
 
-when houses slid into the ocean, the roads buckled,     
+when houses slid into the ocean, roads buckled,     
 stores and office buildings collapsed. Today, Anchorage glimmers     
-along the shores of Turnagain Arm, flashing its signals     
+along the shores of Turnagain Arm, flashing signals     
 of electronic hope across the backdrop of the snow-capped Chugach,     
 Alaska and Brooks ranges, beckoning to anyone who will listen.     
 
@@ -3848,9 +3848,9 @@ huddled in alleys, in hotel lobbies, the hunger
 etched in broad lines across their granite faces,     
 the boredom seeping from their eyes.     
 
-Here beauty isn’t frivolous. It’s something to be worshiped     
-while in season, divided among the people     
-according to need, the elders first, then the youngsters.     
+Here beauty isn’t frivolous. It’s something     
+to be worshiped while in season, divided among the people     
+according to need, elders first, then the youngsters.     
 
 It can provide sustenance for a year, sustenance for a lifetime     
 in this world that is white and grey, and always on the lookout     
