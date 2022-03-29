@@ -1231,10 +1231,11 @@ who could lay out the path of string leading back to innocence.
 
 ## Grandmother in Heaven
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*after Phillip Levine*
 
 Darkness eases between the leaves  
 of the maple as you walk with a basket  
-of windfall gathered from Seelman’s orchard.  
+of windfall collected from Seelman’s orchard.  
 
 In it you've gathered red and gold apples,  
 green pears with a touch of blush on their cheeks,  
@@ -1274,7 +1275,7 @@ across the soft rise and fall of his chest.
 
 Tonight you will sit in your room,  
 braid a love knot before the mirror,  
-waiting for the black haired German boy,  
+waiting for that black haired German boy,  
 
 face sunburned from the fields, but cleanly washed,  
 to toss a pebble against your window,  
@@ -2074,27 +2075,27 @@ but with each step your sleeve grows moister,
 
 the bandage already tossed in the garbage    
 before you left the artist’s shop.  Now hay    
-unexpectedly flies from the back of a passing pickup    
+unexpectedly flies from the back of a passing pickup,    
 
-like a whisper of something strange and exotic.    
+a whisper of something strange and exotic.    
 Brake lights paint the night with the squeal     
 of worn tires.  You continue to walk leisurely    
 
 toward your destiny of nothing     
 as a voice calls out, soft and sweet     
-as a cemetery rose. Your name and no other.    
+as a cemetery rose, your name and no other.    
 
 As you enter the truck cab you can see    
-her pink panties inching out around the sides    
-of her high cut blue jean shorts,    
+her pink panties peeking out around the sides    
+of her high-cut blue jean shorts,    
 
 feel her hand brushing against yours    
 like a flower in search of its bee.  Your arm    
 aches like your heart with loneliness, mistrust.    
 
-Yet that face bleeding through your skin and shirt    
+Yet that face bleeding through your skin     
 clears its throat, begins to whisper and hum    
-“Are you lonely tonight.”  You feel yourself    
+“Are you lonesome tonight.”  You feel yourself    
 
 singing along, only slightly out of tune    
 as you pass fields of horses, cattle,    
@@ -2340,7 +2341,57 @@ surfaces in my mind, the names recorded
 on the scroll of time, each saying remember me,    
 remember me for I could be your destiny.    
 
+***
+***
+***
+***
 
+## Bardo
+
+Everything turns to smoke.   
+My hand wavers before me    
+like a reflection in a river.   
+I rise to leave my body lying   
+
+on the table like a tree felled    
+in the woods, the rain and lichen    
+beginning to write their code    
+of forgetfulness across my face.   
+
+But what is a face worth now    
+other than for tears from loved ones?   
+I begin moving without taking   
+any steps, talking without saying    
+
+any words of comfort to those   
+who stand grieving over this body.   
+There is a language that surrounds me   
+that I cannot comprehend.   
+
+It carries me past those I recognize    
+like a strong wind, even as I try to stay,   
+to cling to those I know and love.    
+My arms are nothing more than vapor   
+
+that can't secure me, my eyes are mirrors   
+longing to reflect what could have been,   
+yet they grow more and more blank   
+as my spirit moves across the floor,   
+
+through the walls and out into the street   
+among a world strangers, the particles   
+of my soul growing less and less dense,   
+my memories fading like pennies    
+
+into the wishing well of another life,   
+a life that will never be mine,  
+a life that will consume me like meat   
+on a bone, that will grow from this dissolution   
+
+into cells in the petri dish of some unknown    
+chemist until they cry out feed me, feed me    
+with your tears of joy as I emerge    
+from a dark tunnel to be held in your arms.   
 
 
 

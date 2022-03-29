@@ -40,9 +40,9 @@ message of love.  You’ll keep wondering
 is that my sign everywhere you look--  
 the green eyes of a cat, the hummingbird stilled  
 in mid-flight, the unknown boy who asks for a hug--  
-is that my sign as year after year goes by.  
+is that my sign as year after year goes by.*  
 
-Hurry, the crows are hungry.*  
+*Hurry, the crows are hungry.*  
 
 
 ***
@@ -71,7 +71,7 @@ dressed in a hospital gown, no underwear,
 began beating her head against the glass,  
 rattling the walls, screaming like a wild animal   
 as the starfish on her forehead grew and grew.  
-The grinning man across from us who looked like a ‘50s   
+The man grinning across from us, who looked like a ‘50s   
 rock and roller dressed in grey sweatpants and penny loafers   
 started stroking himself, slow at first, then faster.  
 “What are you doing here, you’re not like these people.”  
@@ -204,7 +204,7 @@ in the cloud-darkened window.  “Don’t you think?”
 His eyes burned through the space separating us.  
 But silence was all I had to offer,   
 those denials and acknowledgments flowing   
-in undercurrents through a dark, unknowable ocean.  
+through the undercurrents of a dark, unknowable ocean.  
 As we sat there I could see his hands exactly like mine,  
 his face a newer version of my face, that voice   
 meting out every tick of the clock from the beginning  
@@ -225,7 +225,6 @@ meant to be saved, only endured, adapted to
 in its evolution.  We departed at the same stop,  
 still strangers, twins separated by forty years,   
 a single heart that divided like a cell, as we headed off  
-in different directions, our footsteps fading into echoes.
 in different directions, our footsteps echoing into darkness.    
 
 ***
@@ -582,7 +581,7 @@ slowly removing the ones she loves, and leaving nothing
 but strangers who visit with their icy, unwelcomed hugs.  
 
 “Tell me again how we are related.  I just can’t place you.”  
-“Are you from Allens Creek too?  Could we be cousins?”  
+“Are you from Allen's Creek too?  Could we be cousins?”  
 “There’s no way you could be a Doss.  You can’t be related  
 
 to my first husband.  He was such a good man,  
@@ -594,7 +593,7 @@ she was denied, every wrong, every perceived injury
 from the orphanage to the workplace to the graveyard.  
 
 For what seems like an hour, we practice how to insert  
-the key into her doorlock, turn the handle, open the door,  
+the key into her door lock, turn the handle, open the door,  
 remove the key, the same mistakes repeated over and over.  
 
 Then we move on to the TV, the red on-off button  
@@ -620,9 +619,9 @@ Only in dreams did I speak Iñupiaq,
 that ghost language of my ancestors,  
 the syllables sweet as *muktuk* on the tongue  
 
-as I addressed my ancestors. What I said,  
+as I addressed my forefathers. What I said,  
 I don’t know, but they nodded and laughed  
-in agreement, their ivory labrets gleaming  
+in agreement, their ivory *labrets* gleaming  
 
 in the firelight, the imaginary spears in their hands  
 thrusting at some large beast swimming by.  
@@ -634,13 +633,13 @@ and the ocean’s frozen fingers scraping the pebbled shoreline.
 
 South of us the salmon run like clockwork  
 from summer into fall, first the Chinook,  
-the Sockeye, then the Coho feeding our brothers  
+the Sockeye, then the Coho feeding our brothers,  
 
 the grizzlies and blacks, the eagles, the other tribes  
 and sportsmen. They flock to the riverbanks  
 by the thousands with their lines and nets  
 
-to snag the kype, break the hunched backs  
+to snag the *kype,* break the hunched backs  
 to taste the pink flesh, while we wait patiently   
 by our boats on the arctic icecap to see  
 
@@ -657,7 +656,7 @@ with their caribou pelts, or the manufactured homes
 stacked on pilings along the gravel roads   
 
 with the 4-wheel drive pickups and snow machines   
-parked out front. The glide of the umiak is just like I remember  
+parked out front. The glide of the *umiak* is just like I remember  
 from my dreams, almost slow-motion, yet it is filled  
 
 with thousands of spirits, both dead and living,  
@@ -1579,7 +1578,7 @@ mein Freund.*  Our fate cannot be taken from us.
 
 ## Karma
 
-1966_.   Barbie.  Ken.  
+1966.   Barbie.  Ken.  
 Everything so perfect.  The world  
 before death.& sex. No limitations.  
 Money. Pink Cadillacs.  
@@ -1687,13 +1686,13 @@ The shadows around them say 11 a.m.,
 hours since oyster boats slipped through the mouth  
 of the Potomac to dreg the bay’s beds.  
 
-In the corner you’ll see empty docks,  
+In the corner of the picture you see empty docks,  
 gasoline pumps, a police boat swaying  
 at the pier, the waters much cleaner  
 
 than decades ago when soap suds and chemical froth  
 choked the rockfish and suffocated  
-the bivalves. Recovery can take years.  
+the bivalves. Recovery can take decades.  
 
 Now eagles and osprey swoop to snatch  
 a silver gleam from the water. You set a sweating glass  
@@ -1701,18 +1700,18 @@ on the table, slip into grace you never see
 
 coming. Somewhere beneath the tides  
 a body floats out of sight, one of the boys   
-who jumped from boulders on a dare, or the bridge  
+who jumped from the boulders on a dare, 
 
-of despair, a lone figure falling  
+or the bridge  out of despair, a lone figure falling  
 into grey water as miles away  
-skipjacks haul in nets heavy with mud,  
+fleets of skipjacks haul in nets heavy with mud,  
 
-shells, and eelgrass. What mother  
-could imagine her son lifted  
+clams, and eelgrass. What mother  
+wants to imagine her son lifted  
 by a cold hook as it drags along the bottom?  
 
-In the photograph, there’s no hint  
-of the tragedies to come, just the realization   
+In the photograph, there’s no hint of the tragedies 
+of the past, or the tragedies to come, just the realization   
 that gates of suffering are always open and ready  
 
 to give birth— hair slick with womb juices, skin pearled  
@@ -1864,7 +1863,7 @@ on a hard branch that holds
 the statues of your ancestors  
 bound with ropes of thorns  
 
-where your dream flames up  
+where your dream flares up  
 like a bee's nest made of paper  
 and sting after sting comes  
 before your tongue touches  
@@ -2004,7 +2003,7 @@ on the empty bottle left on my nightstand
 
 the alibi  
 for all my futures  
-forking perpetually through time  
+perpetually forking through time  
 
 ***
 ***
@@ -2180,4 +2179,450 @@ in Fate's damp, musty basement air.
 ***
 ***
 ***
+
+## Night Waitress
+
+My face reflected in display case glass   
+hovering over the pies and cakes   
+goes unnoticed by those who enter.   
+I'm nothing more than an invisible doll,   
+
+stoic, but not beautiful, with the Russian    
+peasant face of my mother   
+who scrubbed floors her entire life.    
+At this hour the men all look grubby   
+
+and their loneliness fills the air   
+like the smell of cheap cologne   
+mixed with BO. They ignore me   
+when I place the plates and silverware   
+
+before them, hand them soiled menus,   
+take their orders with the same indifference  
+they show me. Occasionally I hear the ding   
+of their phones as a chat babe   
+
+responds to the latest flirtation,   
+catch a glam shot of some twenty-something   
+searching for her sugar daddy. What fantasies   
+must run through these fifty-something   
+
+year old heads. They aren't millionaires,   
+or up and comers. Their calendars   
+aren't filled with romantic escapades,   
+just the loneliness of heartbreak   
+
+and impending disasters as each new ding   
+arrives with its message of hope.   
+But are these babes real or just some Nigerian   
+con-artist searching out the most vulnerable?   
+
+I look at my own rough hands, the fingers   
+thick and cracked from dishwater   
+and wiping down tables. I have nothing   
+to hold onto or call my own.    
+
+***
+***
+***
+***
+
+## Gazel of the Hometown
+
+A ferry stop across the James River manned by John Lynch became Lynchburg.   
+People kept coming to these hills overlooking the river to build a town called Lynchburg.   
+
+I was born into a family stolen by time, the ghosts roaming the hallways   
+Of our ramshackled shack on the borderline between the rich and poor of Lynchburg.   
+
+I followed Thomas Jefferson’s footsteps from the boarding house on Main Street   
+To where he'd dine traveling to his second home, Poplar Forest, just south of Lynchburg.   
+
+I felt the old money snobbery of multi-generational family fortunes made from   
+The slave-trade, tobacco, railroads, coal, shoe factories -- the economy of Lynchburg.   
+
+I watched their eyes follow me with suspicion as I walked through their neighborhoods   
+While the maids, nannies and gardeners carried out their duties for Lynchburg.   
+
+I saw the railroad tracks buried beneath paved streets that brought wounded   
+Confederate soldiers to make-shift hospitals to live out their last days in Lynchburg.   
+
+I sat at segregated lunch counters, drank from the proper fountain, used the right    
+restroom, always asking why, until those signs disappeared from the stores of Lynchburg.   
+
+I heard the gospel echoing from an abandoned Pepsi factory, the choir singing,    
+The collection plates being passed for a saved boy named Falwell from Lynchburg.    
+
+Then finally on the orphanage steps, I decided to become my own father, own mother,   
+My life born again, to be mine and only mine, unburdened by the history of Lynchburg.   
+
+
+***
+***
+***
+***
+
+## Doss and I
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*after Jorge Luis Borges*
+
+I do not know which of us is holding the pen now,  
+nor whose thoughts drive the ink onto this page.  
+Two ghosts live inside this empty vessel called me.   
+
+One surfaces for a much needed breath of air  
+and some idle chatter with the gulls overhead,  
+while the other dives deep into the grotto  
+
+of the soul, not to be seen for hours or even days.  
+There's Doss the scoundrel, the braggart,   
+basking in his own glory as if he were a Hollywood actor  
+
+reciting words others have written so convincingly  
+that he even fools himself into a tear or two.  
+Then there's the nameless one,  
+
+thin and fleeting as a shadow, vague as smoke,   
+but oh what a fire burns inside of him   
+like lava bubbling up from the sea floor,     
+
+turning salt water into steam, the vapor rising   
+like premonitions inside me, otherworldly visions   
+of what has happened and what is to come.  
+
+Those visions now guide the pen in my hand  
+as words so foreign to me appear on the page  
+written in a language I don't speak or understand.   
+
+Then the first ghost surfaces to peer   
+out of my right eye questioning everything   
+I write while the other ghost stares out   
+
+of my left eye urging the words to come forth   
+in a gush of unforeseen emotion.    
+Heaven help me if the two should ever meet.   
+
+***
+***
+***
+***
+
+## January Night
+
+Listen......   
+an owl in the hemlocks   
+right outside the window   
+where I type and type   
+
+searching for my lost spirit,   
+my soulmate, cast away   
+somewhere in the vastness   
+of irredeemable night.   
+
+Who can the owl be calling   
+in that forlorn voice   
+so similar to my own?   
+Will he ever get an answer?    
+
+***
+***
+***
+***
+
+## Ancestral Home
+
+I hear that familiar groan     
+of the pine boards as I step onto the porch,   
+see the centuries old straight-back rockers   
+where the men would sit in the evenings     
+after a day in the fields with their rifles   
+cocked and laid across their laps like freedom  
+as they sipped the latest batch of family moonshine        
+waiting for the stray deer to wander  
+through their land or the unwelcomed stranger  
+begging food and shelter for the night.   
+I duck through the front door,  
+bowed like a monk entering sacred ground,   
+to find myself in the mud room   
+where they shed their boots and overalls,  
+before bowing again to enter the living room  
+where the floors sway like the surface     
+of a pond in a windstorm, and couches   
+and chairs drift like abandoned boats.  Then I enter    
+the kitchen, see an old electric range   
+wedged next to the wood stove   
+where the women rose early to prepare   
+the biscuits, eggs and bacon and stayed up late  
+skinning and gutting the kill of the day.  
+Next, I follow a low ceilinged, narrow staircase     
+to the second floor with its three rooms,   
+each just barely large enough for a bed,    
+a dresser and a urine jug-- life's essentials.    
+When I look into the master bedroom mirror  
+with its age spots, blemishes, and distortions,     
+I see nothing more than a blank   
+slate chalk board in a one room schoolhouse   
+where their ghosts rehearse the abc's     
+of their dreams in crude, tortured letters,    
+striving for that elusive perfection that evaded    
+them in life, telling me this is my endowment.    
+
+***
+***
+***
+***
+
+## So Many Questions
+
+Where did you go that fateful day in April 1966?   
+Last thing I saw was you laying on the couch   
+after mowing grass for the first time that year,   
+your arm draped over your eyes, your brow glistening  
+with sweat.  There was no 911 to call back then.   
+No ambulance came to get you.  You waited   
+until someone could arrive to babysit your two kids.   
+Waited in agony, wanting to rip open your chest   
+and pull your heart out to stop the pain,  Why  
+did the emergency room doctors not know   
+how fix that simple electrical malfunction     
+that can be corrected so easily today without surgery?   
+Did you even realize you fell out of the car   
+when the door opened, your head striking the curb?   
+Did you feel the rush of angel wings all around   
+as the orderlies lifted you onto the gurney   
+and rushed you into surgery?  Did your hear   
+the crack of your ribs when they opened your chest?   
+Did you feel the shock of their paddles   
+trying to restart the beating of your heart?   
+Did you sense the letdown in their voices  
+when they finally called the time of death?   
+Did you hear them walking into the waiting room   
+fighting back a tear to tell your wife the dreadful news.  
+I can't even imagine her reaction. Did you feel yourself   
+lifted upward, rising through the clouds    
+to meet our Maker, the one we sang hymns to?   
+Did he greet you with open arms, fold you into his breast?   
+Did you see your funeral, the overflowing church,   
+the people who couldn't get a seat and lined the aisles?    
+Did you see my drawing of you that next morning   
+with angel wings ascending to heaven as the sun rose?     
+Have you been able to watch us grow up?   
+Have we become the kind of people you wanted us to be?   
+How different would we be had you lived?
+Or did God create a parallel universe in another dimension   
+where we grew old together living an entirely different life?    
+Show us a sign, any kind of sign   
+that you are still there, caring for us, nurturing us.     
+a bird call that sounds like your laughter,   
+a butterfly the color of your eyes lighting on a blossom.   
+We miss you.  Please wait for us, but don't lose   
+that sense of humor.  We all want to hear   
+some good jokes when we are finally reunited.   
+We want to feel like a family again.    
+
+***
+***
+***
+***
+
+## Snapshot, January 1962
+
+My father settles me on his lap.  
+
+We are sitting on the living room sofa   
+Watching television.   
+
+I am the young horse    
+Grazing on thick plateau grass,    
+Galloping, shaking my mane.   
+
+In the hallway   
+Mother's making some loud noise.   
+
+Father gets up to change the channels.   
+
+Now I am a silky fish sliding    
+Through the dark cool depths,    
+Dodging nooses of seaweed.    
+
+Click!    
+A flash of lightning!   
+The shutter blinks!   
+
+Mother lowers the camera, smiling.   
+
+*His arms wrapped snugly about me    
+Like a safety belt.*   
+
+*My grip tightening around his thumb --   
+The throttle of a space ship  
+That will propel me through time.*
+
+*Already, the death-light pouring from his eyes.*
+
+
+***
+***
+***
+***
+
+## The Chemo Lizards
+
+I don't even feel the jab  
+of the IV needle in my arm   
+anymore as the nurse prods   
+for a vein in a swamp of little creeks.   
+The bruises ripen like plums   
+as she continues to prod,   
+then sticks again in a different spot   
+searching for blood flow,   
+for any trickle before taping   
+the tubing to the hairs on my forearm.   
+Next she hangs the bag of chemo,  
+sets the flow rate as I watch   
+the invisible chemical lizards   
+swirl around in the bag   
+waiting to be set free to feast.  
+I watch them descend through the tube,   
+see their excitement as they get closer  
+to the target.  I feel them slithering  
+through my veins, searching the labyrinth    
+of my body for those cells   
+they so love to devour.  They are on   
+a magic carpet ride to destroy  
+the evil temple of cancer,   
+brick by brick, mortar by mortar   
+until they themselves die,   
+exhausted by their hunger.  
+I feel them enter my body   
+week after week wondering   
+when it will stop, when the temple   
+and its rubble will be gone.    
+without a trace.  The clock ticks on.      
+The lizards breed and breed      
+back in the chemo lab.  
+My hair drifts down around me    
+like angel wings, like falling leaves  
+on a cold, breezy day   
+until I become a shining dome   
+surrounded by followers   
+all praying for the second coming.  
+
+***
+***
+***
+***
+
+## Visions
+
+an owl    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;calling for its mate    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from a hemlock outside the window    
+a teacup  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;teetering on the edge    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;of a table   
+a piece of grit  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that makes the eye  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;water with tears  
+a jackknife sharpened  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and folded neatly  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;into a pocket  
+a witness to something  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that can't be recalled  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;whether it's true or false  
+an empty room   
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;with its spider webs in the corners    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;dead flies on the floor    
+a ditch full   
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;of bloodstained hubcaps  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; and abandoned wallets    
+a deer's ribcage   
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;rising above   
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;its rotting flesh    
+a vulture huddled    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;over an unrecognizable corpse    
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;white as limestone    
+an ax leaning against a tree     
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ready to strike again   
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you follow incriminating footprints leading nowhere
+
+***
+***
+***
+***
+
+## The Angel of Numbers
+
+Out of the sky, filtered between the clouds,   
+rays of sunlight paint an equation    
+across the chalkboard of the earth,     
+
+mysterious symbols foreign to any mathematician.    
+A universal truth that so many   
+will spend a lifetime trying to decipher   
+
+in their research facilities, with their super computers   
+loaded with AI processors blazing away,   
+burning up kilowatts of precious electricity.    
+
+But what can artificial intelligence tell us  
+that biological intelligence can't?  On cloudy days  
+I can see the silky wings of an angel flittering about  
+
+the heavens, checking on us, ensuring our destruction   
+remains centuries away.  Guaranteeing mysteries remain intact.   
+I see the protractor in her hands measuring the distance   
+
+and angle of the stars.  I watch the compass plotting  
+the trajectory of our fate as we navigate toward  
+our uncertain ending, a poem still in search  
+
+of a theme and its penultimate stanza.  
+In her satchel, she carries numbers, sprinkles   
+them randomly wherever she flies around the globe.  
+
+They are for the children to cling to with certainty  
+while she darts into the labs, a tiny spark from her finger  
+altering the computers' memory and algorithms    
+
+so God's mystery remains known, but unsolvable.     
+
+***
+***
+***
+***
+
+## The Angel of Deception
+
+Unseen, just over your shoulder,   
+behind your back like a shadow   
+lurking in the woods, hidden in the crowd,   
+
+it is always there whispering   
+in your ear, second-guessing  
+what you hear, reversing what you say.   
+
+Its smoky voice, loud, persistent,  
+cutting, like broken glass,   
+a wound that never heals,   
+
+saying everything is false,   
+made-up, but the voice that awaits   
+you underground, that mirror of you soul     
+
+in its eternal dialog.   It is always behind you,   
+fertilizing your doubts, nourishing that tree   
+of evil that wants to overtake your dreams.   
+
+***
+***
+***
+***
+
+## The Road to Lorca
+
+Tongue-tied around my Spanish heart   
+like a dog that can't gnaw through its leash.
+
+
 

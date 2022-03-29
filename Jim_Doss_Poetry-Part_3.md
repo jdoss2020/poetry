@@ -215,7 +215,7 @@ If they can push out a few blossoms why can't I.
 ***
 ***
 
-Loyalty
+## Loyalty
  
 He was the only man I ever loved. Could love, really  What else can you say about the hand that feeds and baths you, scoops your poopies out of the back yard., tosses the ball until you get bored with chasing it.  I hate to get sentimental, but you know how it is.  *Just let it all out, you’ll feel better.*  I don’t know what I’ll do without him.  I didn’t even mind the smell or taste of his feet as I chewed on his old tennis shoes.  It was almost a mystical experience, like dropping shrooms.  *Very interesting, any left in the closet that can be shared?*  No, the bitch threw them all out, cursed his ghost for cheating on her.  But who can blame him for chasing any tail that can be scented within a square mile.  *Very true.  It’s only natural.*  He was good for me, so good, I’ll never be able to train another master.  *Now, now, I’m sure everything will work out alright.*  The whole house smells like disinfectant, not even a whiff of him left in the darkest corners. I’m going crazy, doc.  Uncontrollable scratching, clumps of hair caught between my claws, I must be coming down with the mange.  But in my dreams we’re running through the fields, chasing rabbits, flying kites, two perfect bodies in full stride, two bowls of happiness soaked in gravy just waiting for us to dig in.
 
