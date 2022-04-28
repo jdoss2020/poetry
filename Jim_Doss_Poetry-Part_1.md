@@ -2074,8 +2074,8 @@ You can’t think of words to fill the night’s silence
 but with each step your sleeve grows moister,     
 
 the bandage already tossed in the garbage    
-before you left the artist’s shop.  Now hay    
-unexpectedly flies from the back of a passing pickup,    
+before you left the artist’s shop.  Now hay flies    
+unexpectedly from the back of a passing pickup,    
 
 a whisper of something strange and exotic.    
 Brake lights paint the night with the squeal     
@@ -2088,6 +2088,65 @@ as a cemetery rose, your name and no other.
 As you enter the truck cab you can see    
 her pink panties peeking out around the sides    
 of her high-cut blue jean shorts,    
+
+feel her hand brushing against yours    
+like a flower in search of its bee.  Your arm    
+aches like your heart with loneliness, mistrust.    
+
+Yet that face bleeding through your skin     
+clears its throat, begins to whisper and hum    
+“Are you lonesome tonight.”  You feel yourself    
+
+singing along, only slightly out of tune    
+as you pass fields of horses, cattle,    
+and that smile back tells you to keep going.    
+
+***
+***
+***
+***
+
+## Calling Elvis (version 2)
+
+Done, you walk through the door  
+with blood on your sleeve  
+in the shape of a smiling fist,  
+
+a fist that just knocked the crap   
+out of someone.  You still feel the needle  
+jabs infusing the indelible ink beneath your skin  
+
+like a song performed so poorly    
+before a bunch of rowdy drunks in a bar    
+that even they took notice.  Now there’s no one  
+
+to witness your long walk into the oblivion     
+of the night, a cork drifting out to sea     
+on the tide of some nameless sorrow    
+
+that you and a hundred Ph.D.’s can’t comprehend.    
+Your lips feel the slight hum of a melody     
+begin to grow, both joy and pain    
+
+entwined together around a trellis of emotion.      
+You can’t think of words to fill the night’s silence     
+but with each step your sleeve grows moister,     
+
+the bandage already tossed in the garbage    
+before you left the artist’s shop.  Now hay flies    
+unexpectedly from the back of a passing pickup,    
+
+a whisper of something strange and exotic.    
+Brake lights paint the night with the squeal     
+of worn tires.  You continue to walk leisurely    
+
+toward your destiny of nowhere     
+when a voice calls out, soft and sweet     
+as a cemetery rose, your name and no other.    
+
+As you enter the truck cab you see    
+pink panties peeking out around the sides    
+of high-cut blue jean shorts,    
 
 feel her hand brushing against yours    
 like a flower in search of its bee.  Your arm    
@@ -2294,7 +2353,7 @@ in a concentration camp.
 
 But the politicians celebrated,    
 and celebrated, in the Capitol,    
-In the White House, in elite    
+in the White House, in elite    
 restaurants with the best    
 food and drink. The pictures    
 of their victory covered newspapers,    

@@ -2592,7 +2592,7 @@ so God's mystery remains known, but unsolvable.
 ***
 ***
 
-## The Angel of Deception
+## The Angel of Deceit
 
 Unseen, just over your shoulder,   
 behind your back like a shadow   
@@ -2603,16 +2603,50 @@ in your ear, second-guessing
 what you hear, reversing what you say.   
 
 Its smoky voice, loud, persistent,  
-cutting, like broken glass,   
-a wound that never heals,   
+like broken glass cutting   
+a wound that never heals.   
 
-saying everything is false,   
-made-up, but the voice that awaits   
+It says everything is false,   
+made-up, except the voice that awaits   
 you underground, that mirror of you soul     
 
-in its eternal dialog.   It is always behind you,   
-fertilizing your doubts, nourishing that tree   
-of evil that wants to overtake your dreams.   
+trapped in its eternal dialog.   It's always behind you,   
+unseen, fertilizing doubt, nourishing that tree   
+of evil that will consume all your dreams.   
+
+***
+***
+***
+***
+
+## Spider
+
+It stares at me with its hundred eyes   
+in a transparent hugeness that cannot be seen.    
+I watch it watching me, no longer moving,   
+bleeding invisibly from its abdomen 
+onto the hardwood floor,   
+the stain like a birthmark on the face of a new born.   
+For days I observed it, sprawled in the corner of kitchen.   
+No one else could see the great effort it took   
+to stretch its eight legs in an attempt to rise,   
+only to collapse.  No one could see the tears rising   
+in its deadly eyes as it struggled and struggled,  
+The flies that landed on its head showed no fear,   
+took a drink of its blood.  Meal worms    
+scurried before it looking for any crumbs   
+they could find.  All it could do was watch   
+like a stone, unable to lift its own weight,
+unable to become airborne and strike,   
+though its hunger wanted to transform it    
+into something otherworldly.  What great effort    
+it expended as it shivered, rocked from side to side  
+unable to go where its eyes would lead it.   
+What pain and confusion it must have felt unable to act.  
+The body continued to lay unmoving on the floor,  
+a gleam of light still coming from its eyes--   
+those dreams that fade shortly after the sun rises.   
+
 
 ***
 ***
@@ -2621,8 +2655,14 @@ of evil that wants to overtake your dreams.
 
 ## The Road to Lorca
 
-Tongue-tied around my Spanish heart   
-like a dog that can't gnaw through its leash.
+Tongue-tied around your Spanish heart.   
+like a dog that can't gnaw through its leash,  
+you take the road no one ever travels,    
+that road of wild raspberries   
+with its three feet of snow   
+where the dogs howl in the cemeteries   
+for hours looking for their beloved masters   
+
 
 
 
