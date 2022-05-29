@@ -1710,7 +1710,7 @@ clams, and eelgrass. What mother
 wants to imagine her son lifted  
 by a cold hook as it drags along the bottom?  
 
-In the photograph, there’s no hint of the tragedies 
+In the photograph, there’s no hint of the tragedies   
 of the past, or the tragedies to come, just the realization   
 that gates of suffering are always open and ready  
 
@@ -2299,7 +2299,7 @@ out of my right eye questioning everything
 I write while the other ghost stares out   
 
 of my left eye urging the words to come forth   
-in a gush of unforeseen emotion.    
+in a rush of unforeseen emotion.    
 Heaven help me if the two should ever meet.   
 
 ***
@@ -2334,38 +2334,50 @@ Will he ever get an answer?
 I hear that familiar groan     
 of the pine boards as I step onto the porch,   
 see the centuries old straight-back rockers   
+
 where the men would sit in the evenings     
 after a day in the fields with their rifles   
-cocked and laid across their laps like freedom  
+cocked and laid across their laps like freedom   
+
 as they sipped the latest batch of family moonshine        
 waiting for the stray deer to wander  
 through their land or the unwelcomed stranger  
+
 begging food and shelter for the night.   
-I duck through the front door,  
+I duck through the front door,   
 bowed like a monk entering sacred ground,   
+
 to find myself in the mud room   
-where they shed their boots and overalls,  
-before bowing again to enter the living room  
+where they shed their boots and overalls,   
+before bowing again to enter the living room   
+
 where the floors sway like the surface     
 of a pond in a windstorm, and couches   
 and chairs drift like abandoned boats.  Then I enter    
-the kitchen, see an old electric range   
-wedged next to the wood stove   
-where the women rose early to prepare   
+
+the kitchen, see an old electric range    
+wedged next to the wood stove    
+where the women rose early to prepare    
+
 the biscuits, eggs and bacon and stayed up late  
-skinning and gutting the kill of the day.  
+skinning and gutting the kill of the day.   
 Next, I follow a low ceilinged, narrow staircase     
+
 to the second floor with its three rooms,   
 each just barely large enough for a bed,    
 a dresser and a urine jug-- life's essentials.    
-When I look into the master bedroom mirror  
+
+When I look into the master bedroom mirror   
 with its age spots, blemishes, and distortions,     
-I see nothing more than a blank   
-slate chalk board in a one room schoolhouse   
+I see nothing more than a blank    
+
+slate chalk board in a one room schoolhouse    
 where their ghosts rehearse the abc's     
-of their dreams in crude, tortured letters,    
-striving for that elusive perfection that evaded    
-them in life, telling me this is my endowment.    
+of dreams in crude, tortured letters,    
+ 
+striving for the perfection that eluded    
+them in life, telling me this is my endowment,    
+this is the only place I can call home.   
 
 ***
 ***
@@ -2408,7 +2420,7 @@ Did you see my drawing of you that next morning
 with angel wings ascending to heaven as the sun rose?     
 Have you been able to watch us grow up?   
 Have we become the kind of people you wanted us to be?   
-How different would we be had you lived?
+How different would we be had you lived?     
 Or did God create a parallel universe in another dimension   
 where we grew old together living an entirely different life?    
 Show us a sign, any kind of sign   
@@ -2466,47 +2478,58 @@ That will propel me through time.*
 ***
 ***
 
-## The Chemo Lizards
+##  The Chemo Lizards
 
-I don't even feel the jab  
+I don't even feel the jab   
 of the IV needle in my arm   
 anymore as the nurse prods   
 for a vein in a swamp of little creeks.   
+   
 The bruises ripen like plums   
 as she continues to prod,   
 then sticks again in a different spot   
 searching for blood flow,   
-for any trickle before taping   
+   
+any trickle before taping   
 the tubing to the hairs on my forearm.   
-Next she hangs the bag of chemo,  
+Next she hangs a bag of chemo,   
 sets the flow rate as I watch   
-the invisible chemical lizards   
+   
+invisible chemical lizards   
 swirl around in the bag   
-waiting to be set free to feast.  
-I watch them descend through the tube,   
-see their excitement as they get closer  
-to the target.  I feel them slithering  
-through my veins, searching the labyrinth    
-of my body for those cells   
-they so love to devour.  They are on   
-a magic carpet ride to destroy  
+waiting to be freed to feast   
+as they descend through the tube.   
+   
+I see their excitement as they get closer   
+to the target, feel them slithering   
+through my veins, searching   
+my body’s labyrinth for those cells   
+   
+they so love to devour. They are on   
+a magic carpet ride to destroy   
 the evil temple of cancer,   
 brick by brick, mortar by mortar   
+    
 until they themselves die,   
-exhausted by their hunger.  
+exhausted by their hunger.   
 I feel them enter my body   
 week after week wondering   
-when it will stop, when the temple   
-and its rubble will be gone.    
-without a trace.  The clock ticks on.      
-The lizards breed and breed      
-back in the chemo lab.  
-My hair drifts down around me    
-like angel wings, like falling leaves  
+   
+When will it stop,    
+when will the temple   
+and all its rubble will be removed   
+without a trace. The clock ticks on.   
+   
+The lizards breed and breed   
+back in the chemo lab.   
+My hair drifts down around me   
+like angel wings, like falling leaves   
+   
 on a cold, breezy day   
 until I become a shining dome   
 surrounded by followers   
-all praying for the second coming.  
+all praying for the second coming.   
+
 
 ***
 ***
@@ -2544,7 +2567,7 @@ a vulture huddled
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;white as limestone    
 an ax leaning against a tree     
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ready to strike again   
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you follow incriminating footprints leading nowhere
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;you follow incriminating footprints that lead nowhere
 
 ***
 ***
@@ -2573,18 +2596,17 @@ the heavens, checking on us, ensuring our destruction
 remains centuries away.  Guaranteeing mysteries remain intact.   
 I see the protractor in her hands measuring the distance   
 
-and angle of the stars.  I watch the compass plotting  
-the trajectory of our fate as we navigate toward  
-our uncertain ending, a poem still in search  
+and angle of the stars.  I watch the compass plotting    
+the trajectory of our fate as we navigate toward    
+our uncertain ending, a poem still in search    
 
-of a theme and its penultimate stanza.  
+of a theme and its penultimate stanza.    
 In her satchel, she carries numbers, sprinkles   
-them randomly wherever she flies around the globe.  
+them randomly wherever she flies around the globe.   
 
 They are for the children to cling to with certainty  
-while she darts into the labs, a tiny spark from her finger  
+while she darts into the labs, a tiny spark from her finger    
 altering the computers' memory and algorithms    
-
 so God's mystery remains known, but unsolvable.     
 
 ***
@@ -2602,7 +2624,7 @@ it is always there whispering
 in your ear, second-guessing  
 what you hear, reversing what you say.   
 
-Its smoky voice, loud, persistent,  
+Its smoky voice, loud, persistent,    
 like broken glass cutting   
 a wound that never heals.   
 
@@ -2610,9 +2632,9 @@ It says everything is false,
 made-up, except the voice that awaits   
 you underground, that mirror of you soul     
 
-trapped in its eternal dialog.   It's always behind you,   
-unseen, fertilizing doubt, nourishing that tree   
-of evil that will consume all your dreams.   
+trapped in its eternal dialog.   It's always behind you   
+fermenting doubt, nourishing that invisible    
+tree of evil that feasts on all your dreams.    
 
 ***
 ***
@@ -2636,17 +2658,16 @@ The flies that landed on its head showed no fear,
 took a drink of its blood.  Meal worms    
 scurried before it looking for any crumbs   
 they could find.  All it could do was watch   
-like a stone, unable to lift its own weight,
+like a stone, unable to lift its own weight,    
 unable to become airborne and strike,   
 though its hunger wanted to transform it    
 into something otherworldly.  What great effort    
 it expended as it shivered, rocked from side to side  
 unable to go where its eyes would lead it.   
 What pain and confusion it must have felt unable to act.  
-The body continued to lay unmoving on the floor,  
-a gleam of light still coming from its eyes--   
-those dreams that fade shortly after the sun rises.   
-
+The body continued to lay motionless on the floor,  
+a gleam of light still oozing from its eyes--   
+like those dreams that fade shortly after the sun rises.   
 
 ***
 ***
@@ -2658,10 +2679,360 @@ those dreams that fade shortly after the sun rises.
 Tongue-tied around your Spanish heart.   
 like a dog that can't gnaw through its leash,  
 you take the road no one ever travels,    
-that road of wild raspberries   
+that road lined with wild raspberries   
 with its three feet of snow   
 where the dogs howl in the cemeteries   
 for hours looking for their beloved masters   
+
+***
+***
+***
+***
+
+## Archipenko's Standing Concave (or the Glorification of Beauty), 1925
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*America is the only country not jaded or rent by war.*     
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;-- Alexander Archipenko, 1923     
+
+How her beauty reflects in upon itself   
+like light accentuating its own radiance.   
+
+This could be Broadway or Times Square at night,   
+pre Iraq, pre Vietnam, pre Korea, pre WWII,   
+the doughboys forgotten as the stock market rises,   
+model Ts flood the roads and speakeasies lurk   
+around every corner selling good times   
+spiked with bathtub gin, jazz, and dancing.   
+
+She could be a flapper just stepped out of the bath,   
+looking forward to a night out, gazing at herself   
+in the mirror as she powders her body to an unnatural white,   
+styles her hair in bobs, picks out dress and beads.   
+
+A woman like this doesn't need a man, but enjoys   
+their admiration, like ornaments that decorate   
+her life, wealthy nothings to fill a knickknack self.  
+
+And here she is, her silver slenderness    
+before our eyes in the museum gallery, unconscious   
+of our presence as she towels off, unable to hear   
+the buses dieseling by, or the protesters outside   
+chanting to stop the killings in yet another war.   
+  
+Completely self-absorbed, she wants us to forget   
+everything happening in the world, renounce   
+our allegiance to today, step back in time   
+when she was a model in the artist's studio   
+trying to pick up a few extra bucks, and his knife   
+carved the concave splendor of her thighs,   
+shaped her breasts, milkless and tight,   
+rounded a small belly above the hairless V,   
+when war in their minds was a dim memory  
+of victory in foreign lands, a liberation.   
+
+***
+***
+***
+***
+
+## The Year of Soylent Green
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*The ocean's dying.  Plankton's dying.  It's people. Soylent Green is made out of people.*     
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*They're making our food out of people.  Next thing, they'll be breeding us like cattle*      
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*for food.  You've gotta tell them.  You've gotta tell them!*     
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *-- Charlton Heston as Detective Thorn in the year 2022*      
+
+The eco-apocalypse is upon us again     
+like every other year, every decade,    
+a damp cloth smothering the world with heat,   
+filling our lungs with the sound of June bugs    
+as we struggle to breath through the smog.    
+
+Bodies clutter our cities, humans, alive and otherwise,   
+strewn about our streets and sidewalks like litter   
+tossed from a car window.  Walking among them,   
+we can smell the vomit and the fifty different body odors    
+of sweat, see the empty bottles of booze    
+on the concrete broken into green and white stars     
+to slash a purse or a bleed-out a wrist,     
+beside them the used, government-issued   
+hypodermic needles that blasted someone to the moon    
+and back with street drugs, cast aside, and ready for a refill.     
+
+We can almost feel the emaciated ribs poking out     
+of lifeless bodies like the keys of a xylophone     
+awaiting the ultimate musician as waists shrinking dangerously   
+small and the lines to the food banks and churches     
+wrap around the block with most coming away hungry.   
+
+But the oligarchs and billionaires along with   
+their government empowerers have our future planned,    
+and it is bright, oh so bright.  Imagine   
+a world where food is plentiful and allocated freely   
+to everyone regardless of their need.    
+
+Imagine the oceans teeming with life   
+and each net cast returns overflowing.    
+Imagine vast herds of cattle roaming grassy fields    
+eating their fill each day, chickens scratching the dirt   
+as feed scatters like rain around them,     
+pigs grunting at their troughs     
+with full bellies scraping the ground,   
+and fields swaying with ripening grain     
+and vegetables as far as the eye can see.     
+
+Imagine what miracles could   
+be performed if we'd only give them our trust.   
+The end of climate change, clean air and water    
+everywhere, depopulation, abundance   
+laid out before us like in the book of Genesis    
+with housing and prosperity for all     
+the government deems worthy to spare from euthanasia.    
+
+This is the promised land that awaits, if we'd only give them    
+our money, if we'd only give them our souls.    
+
+***
+***
+***
+***
+
+## The Good Angel
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*after Rafael Alberti*
+
+One night while I was sleeping    
+someone I didn't expect   
+knocked on my window.    
+
+I didn't wake, didn't move,    
+but heard a voice calling    
+for me to rise, saw     
+
+it's feathers and swords    
+flashing in moonlight    
+like crosses twisting on chains.   
+
+I heard the voice echoing   
+through the halls of a cathedral  
+filled with divine statues   
+ 
+dressed in biblical garb    
+towering over the pews,    
+foreshadowing events to come.   
+
+I found myself walking up   
+the center aisle toward the alter,   
+the church suddenly filled with people.   
+
+I felt my hand reach out    
+to grasp another hand   
+stretching toward me from the shadows,    
+
+a veil covering her face,  
+a gown trailing along the floor   
+as we stood side by side in silence.   
+
+A voice said "Rise,"   
+and everyone rose   
+standing on banks of clouds,  
+
+mountain ridges, in ocean surf,    
+on asphalt streets, and when I awoke    
+I was no longer alone.    
+
+***
+***
+***
+***
+
+## The Bellicose Angels 
+
+The wind knocks at my door,    
+taps on on windows,    
+shakes the trees like sabers as a warning:    
+
+they are coming, they are coming,    
+to encircle the cities   
+with their parading armies.   
+
+They are coming    
+with their tanks and missiles,   
+their canons fully loaded.   
+
+Cities of the north, cities of the south,   
+they are coming in long convoys   
+in their camouflaged jeeps.   
+
+Their eyes are already on us    
+as ariel reconnaissance planes   
+fly overhead, mapping where we live and play.  
+
+Their battle maps are already drawn,   
+the strategy to wear us down   
+like metal against a grinding wheel.   
+
+But we are strong.   
+The cannons speak to us,    
+their melancholy rhythms    
+
+like a song saying when to hide   
+as buildings crumble around us   
+burying our life stories.   
+
+The dead souls of friends urge us on    
+as a tower of skulls   
+grows on both sides.   
+
+The wind keeps knocking and knocking,     
+trying to break down the door    
+as we sit in our cellars and tunnels   
+
+waiting for nightfall when the cannons    
+sing to us in the voices of angels,   
+and we take our guns   
+
+and ammo belts into the woods   
+looking for those souls separated   
+from the battalions,    
+
+the ones prepared to go to hell    
+at the burst of an automatic rifle    
+to meet their supreme leader.    
+
+***
+***
+***
+***
+
+## The Unknown Angel
+
+The wings lay hidden     
+beneath the shirt,   
+flat as sheets of paper.   
+
+The halo long since   
+removed to rejoin   
+the rings around Jupiter,  
+
+voice now a guttural    
+groan of struggle   
+as he slogs about   
+
+the city sidewalks    
+as passersby often   
+hand him dollar bills.    
+
+The sandals are gone    
+from his feet,     
+replaced by tattered Reeboks.    
+
+But still he hears    
+the soft voice of God    
+speaking to him through the clouds,    
+
+still hears people      
+asking him who he is     
+and if they can help.   
+
+And when his lips    
+form an answer,    
+a word that can't    
+
+be spoken on this earth,     
+they look at him puzzled    
+that once he was an archangel.    
+
+***
+***
+***
+***
+
+## Song of the Luckless Angel
+
+Hear the waves   
+smoothing the sand   
+on the beaches.    
+
+Feel the wind    
+lifting your hair   
+toward heaven.   
+
+Sense the earth    
+shifting below your feet   
+like those questions     
+
+no one could ever answer.   
+I am here, in each sensation   
+pulling you forward and back.   
+
+I am here in the wave,   
+the wind, the earth,   
+for all eternity.   
+
+Look for my soul     
+in the speck of sand,      
+feel my touch      
+
+in the gust of wind,     
+sense my firmness    
+in the steps you take    
+
+across the land.     
+I talk to no one, but I am     
+always here, always in motion.      
+
+Look for me in the wind,    
+the wave, the soft sparks of stars    
+that shape your dreams at night.     
+
+***
+***
+***
+***
+
+## The Undeceived Angel
+
+In dreams 1+1 can equal 3.    
+In antidreams 1+1 always equals 0.    
+But 2, 2 is a number   
+
+that parades around     
+with eyes wide opened    
+like a cheerleader in a short skirt      
+shaking her pompoms.    
+
+It says follow me,   
+greatness awaits you.   
+
+Follow me into the cities    
+where living and dead   
+gather to crown you.   
+
+Follow me down    
+whatever path I lead    
+to your foregone destiny.   
+
+A country longs to hear   
+the fiery chill of your voice.    
+
+A country longs to embrace you.    
+
+"No, no...... leave my dreams alone.     
+Nothing awaits   
+but the harsh sun of reality     
+where I stretch my brittle wings."     
+
+***
+***
+***
+***
+
+ 
+
+
+
+
 
 
 
