@@ -623,7 +623,7 @@ as I addressed my forefathers. What I said,
 I don’t know, but they nodded and laughed  
 in agreement, their ivory *labrets* gleaming  
 
-in the firelight, the imaginary spears in their hands  
+in the firelight,  imaginary spears in their hands  
 thrusting at some large beast swimming by.  
 Awake, I speak the English of the government schools,  
 
@@ -631,7 +631,7 @@ that precise noun-verb-adjective-noun simplicity
 developed half a world away from the tundra  
 and the ocean’s frozen fingers scraping the pebbled shoreline.  
 
-South of us the salmon run like clockwork  
+South of us salmon run like clockwork  
 from summer into fall, first the Chinook,  
 the Sockeye, then the Coho feeding our brothers,  
 
@@ -639,23 +639,23 @@ the grizzlies and blacks, the eagles, the other tribes
 and sportsmen. They flock to the riverbanks  
 by the thousands with their lines and nets  
 
-to snag the *kype,* break the hunched backs  
-to taste the pink flesh, while we wait patiently   
+to snag *kype,*  break the hunched backs  
+to taste their pink flesh, while we wait patiently   
 by our boats on the arctic icecap to see  
 
 that first bowhead breath rainbowed in sunlight.   
 Then we ease our wood-framed vessels into the water, paddle   
-through the breaks to where the great beasts will surface next.  
+through the breakers to where the great beasts will surface next.  
 
 We wait crouched like our forefathers, listening to the quiet   
 lapping of water against our boat, tensed with harpoon in hand,   
 ready for the miracle of life to continue   
 
-for the next thousand years in the sod huts   
-with their caribou pelts, or the manufactured homes   
-stacked on pilings along the gravel roads   
+for the next thousand years in  sod huts   
+with their caribou pelts, or  manufactured homes   
+stacked on pilings along  gravel roads   
 
-with the 4-wheel drive pickups and snow machines   
+with 4-wheel drive pickups and snow machines   
 parked out front. The glide of the *umiak* is just like I remember  
 from my dreams, almost slow-motion, yet it is filled  
 
@@ -901,7 +901,7 @@ No one ever comes here willingly.
 When they do, they disappear  
 into the high desert  
 like drops of rain  
-that never hit the ground.  
+that never touch the ground.  
 
 Off-grid, they live out of trucks,  
 in tin-shacks   
@@ -913,13 +913,13 @@ the headaches, the fatigue,
 the wooziness--  
 each in their own way.  
 
-Some can only read books  
-encased in plastic containers,  
+Some can only read books    
+encased in plastic containers,    
 flipping the pages using surgical gloves  
 and Q-tips because of the chemical fumes  
-from the paper and the ink.  
+from the paper and the ink.    
 
-Others never touch a computer,  
+Others never touch a computer,    
 soak any new clothes   
 they buy in rainwater  
 for weeks to remove   
@@ -945,14 +945,14 @@ and homes that can think for themselves.
 Do they dream of electric currents  
 that slowly dissolve their bones,   
 the smell of colognes driving  
-little spikes into their foreheads,  
+spikes of pain into their foreheads,  
 motors switching on  
 the static of the brain?  
 
-Or do they just dream of the calm  
-of nothing  
+Or do they just dream    
+of the calm of nothing    
 walking between   
-sage and pinyon pine?  
+sage and pinyon pine?    
 
 ***
 ***
@@ -1225,7 +1225,7 @@ extended the splintered claws for a quick kill
 
 before it sputtered out, slipped back into darkness.  
 Then the wall of bars reappeared, the fumes of car exhaust,  
-that endless pacing, pacing, pacing  
+that endless pacing, pacing, pacing.  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;longing for the taste of death.
 
 ***
@@ -1864,7 +1864,7 @@ the statues of your ancestors
 bound with ropes of thorns  
 
 where your dream flares up  
-like a bee's nest made of paper  
+like a wasp's nest made of paper  
 and sting after sting comes  
 before your tongue touches  
 the sweetest honey  
@@ -2500,7 +2500,7 @@ swirl around in the bag
 waiting to be freed to feast   
 as they descend through the tube.   
    
-I see their excitement as they get closer   
+I feel their excitement as they get closer   
 to the target, feel them slithering   
 through my veins, searching   
 my body’s labyrinth for those cells   
@@ -2517,13 +2517,13 @@ week after week wondering
    
 When will it stop,    
 when will the temple   
-and all its rubble will be removed   
+and all its rubble be removed   
 without a trace. The clock ticks on.   
    
 The lizards breed and breed   
 back in the chemo lab.   
 My hair drifts down around me   
-like angel wings, like falling leaves   
+like angel wings, like leaves falling   
    
 on a cold, breezy day   
 until I become a shining dome   
@@ -2674,21 +2674,6 @@ like those dreams that fade shortly after the sun rises.
 ***
 ***
 
-## The Road to Lorca
-
-Tongue-tied around your Spanish heart.   
-like a dog that can't gnaw through its leash,  
-you take the road no one ever travels,    
-that road lined with wild raspberries   
-with its three feet of snow   
-where the dogs howl in the cemeteries   
-for hours looking for their beloved masters   
-
-***
-***
-***
-***
-
 ## Archipenko's Standing Concave (or the Glorification of Beauty), 1925
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*America is the only country not jaded or rent by war.*     
@@ -2735,7 +2720,7 @@ of victory in foreign lands, a liberation.
 ***
 ***
 
-## The Year of Soylent Green
+## The Year of Soylent Green (2022)
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*The ocean's dying.  Plankton's dying.  It's people. Soylent Green is made out of people.*     
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*They're making our food out of people.  Next thing, they'll be breeding us like cattle*      
@@ -2752,12 +2737,12 @@ Bodies clutter our cities, humans, alive and otherwise,
 strewn about our streets and sidewalks like litter   
 tossed from a car window.  Walking among them,   
 we can smell the vomit and the fifty different body odors    
-of sweat, see the empty bottles of booze    
-on the concrete broken into green and white stars     
+of sweat, see  bottles of booze broken    
+against the concrete broken into green and white stars     
 to slash a purse or a bleed-out a wrist,     
 beside them the used, government-issued   
 hypodermic needles that blasted someone to the moon    
-and back with street drugs, cast aside, and ready for a refill.     
+and back cast aside, and ready for a refill.     
 
 We can almost feel the emaciated ribs poking out     
 of lifeless bodies like the keys of a xylophone     
@@ -2778,8 +2763,8 @@ eating their fill each day, chickens scratching the dirt
 as feed scatters like rain around them,     
 pigs grunting at their troughs     
 with full bellies scraping the ground,   
-and fields swaying with ripening grain     
-and vegetables as far as the eye can see.     
+and fields swaying with ripening wheet,     
+soybeans and potatoes as far as the eye can see.     
 
 Imagine what miracles could   
 be performed if we'd only give them our trust.   
@@ -2898,7 +2883,7 @@ from the battalions,
 
 the ones prepared to go to hell    
 at the burst of an automatic rifle    
-to meet their supreme leader.    
+to meet their supreme commander.    
 
 ***
 ***
@@ -2931,8 +2916,8 @@ But still he hears
 the soft voice of God    
 speaking to him through the clouds,    
 
-still hears people      
-asking him who he is     
+hears people      
+asking who he is     
 and if they can help.   
 
 And when his lips    
@@ -2963,7 +2948,7 @@ shifting below your feet
 like those questions     
 
 no one could ever answer.   
-I am here, in each sensation   
+I am here, in each sensation    
 pulling you forward and back.   
 
 I am here in the wave,   
@@ -2994,7 +2979,7 @@ that shape your dreams at night.
 ## The Undeceived Angel
 
 In dreams 1+1 can equal 3.    
-In antidreams 1+1 always equals 0.    
+In anti-dreams 1+1 always equals 1.    
 But 2, 2 is a number   
 
 that parades around     
@@ -3018,19 +3003,233 @@ the fiery chill of your voice.
 
 A country longs to embrace you.    
 
-"No, no...... leave my dreams alone.     
-Nothing awaits   
+"No, no...... stop tinkering with my nightly visions.     
+Nothing awaits when I awake   
 but the harsh sun of reality     
-where I stretch my brittle wings."     
+where I stretch my blood-soaked wings."     
 
 ***
 ***
 ***
 ***
 
- 
+## The Lying Angel    
+
+With words and honey    
+dressed in damassin    
+she speaks of anuptaphobia.   
+
+Two people alone at a restaurant table    
+staring over cups of tea,   
+their faces erugate, smiling,   
+
+but with conspue coloring her eyes    
+as they meet at their parents' suggestion   
+to end their lives of loneliness.   
+
+He's halotic and she's meristic,   
+in their own pygmean ways  
+as he attempts to flirt    
+
+sitting beneath the scrivello    
+mounted on the wall above his head   
+wishing he had a tyg full of ale   
+
+before him instead of this plastic smile,   
+the eyes with no depth, the nose   
+like a zibeb dangling on a vine.    
+
+As the silences grew longer 
+between them, she grabbed a napkin,    
+wrote down her phone number,     
+
+said please call sometime,    
+I think we have something good here,    
+then headed out the door.   
+
+***
+***
+***
+***
+
+## The Musty Angels
+
+Today is that day, the day     
+the winds promised so long ago    
+with their smell of bitter almonds.   
+
+You hear their voices    
+in the drops of rain that fall    
+randomly between  your thoughts.    
+
+Urging you, always urging you    
+to rise up on this sheath of air,    
+to join their double-sided reality.   
+
+Invisible as the soul, they hover    
+before you like centuries-old blood    
+that needs to flow through your veins   
+
+to keep you alive.  You reach out   
+and touch nothing but the myrrh   
+and incense of their breath.   
+
+Yet they are always there,   
+whether you realize it or not,   
+a chorus urging you   
+
+to leave this earth, rise up   
+on your hidden wings   
+to fill the void between them.   
+
+***
+***
+***
+***
+
+## Invitation to the Air
+
+Lost soul, lurking like a shadow     
+in the back of a cave, twenty centuries      
+of darkness surrounds your eyes,    
+colors each word that questions    
+everything and nothing.   
+
+***
+***
+***
+***
+
+##  The Ashen Angel
+
+The smell of artillery fire    
+drifts on the wind   
+like an omen of what's to come.   
+
+The sounds of pistols and rifles   
+echo through the labyrinth of streets   
+twisting and winding its way into your heart.   
+
+The solemn vows you make    
+as the sky crumbled into smoking rubble   
+are repeated all over the city.   
+
+100 apartments here gone,   
+50 apartments two blocks over,   
+the families now transformed into memories   
+
+as floors collapsed      
+beneath their evening meals   
+before the homework was done,   
+
+as fire consumed everything    
+that wasn't brick and mortar.    
+It was then the Ashen One appeared    
+
+all over the city, emerging    
+from smoke and flame    
+in a thousand different disguises,    
+
+enraged, and blinded by anger.  
+The souls of those recently departed   
+lie cradled in its arms   
+
+to be lifted through clouds of smoke,     
+break the chains of gravity    
+that hold us so close and near.    
+
+People in the streets,    
+from their cellars and hand-dug bunkers,   
+couldn't comprehend this level of cruelty.   
+
+But you and the Ashen One could,   
+whirling through nothingness   
+toward the next journey.    
+
+***
+***
+***
+***
+
+## The Enraged Angel
 
 
+
+***
+***
+***
+***
+
+## The Greedy Angel
+
+In a town too small   
+to appear on any map,   
+people were standing   
+on the street corners gossiping,   
+
+staring at the man     
+who was dead    
+but didn't know it   
+as he walked down the sidewalk.   
+
+He wanted to rob the bank,    
+steal wallets and cell phones,   
+hack into online accounts, create   
+a stairway to the clouds and stars,   
+
+hitch a ride on a golden comet   
+and buy what his soul   
+could least afford,   
+that unsettling blue   
+
+of sky that filled    
+his dreams with a wonder
+that would cost him everything    
+and nothing at the same time.    
+
+He didn't realize he was dead,    
+even with the acetylene torches   
+lighting the bleak corridors  
+of his eyes and his brow furrowed  
+
+with tunnels leading  
+to the darkest chambers    
+of his heart where picks    
+and shovels still dig veins of ore.  
+
+He didn't realize his body  
+was air floating just above  
+the pavement.  All he could feel   
+were the rock slides of his face,  
+
+the tiny explosions of dynamite  
+in his brain as those around him   
+saw the faint outline of his body  
+being slowly absorbed by the sky.  
+
+
+
+***
+***
+***
+***
+
+## The Road to Lorca
+
+Tongue-tied around your Spanish heart.   
+like a dog that can't gnaw through its leash,  
+
+Like a dog that just gnawed through its leash,    
+you take the road no one ever travels,    
+a road lined with wild raspberries   
+with its three feet of snow   
+where the dogs howl in the cemeteries   
+for hours looking for their beloved masters   
+
+***
+***
+***
+***
 
 
 
