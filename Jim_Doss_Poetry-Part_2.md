@@ -2492,7 +2492,7 @@ searching for blood flow,
    
 any trickle before taping   
 the tubing to the hairs on my forearm.   
-Next she hangs a bag of chemo,   
+She hangs a bag of chemo,   
 sets the flow rate as I watch   
    
 invisible chemical lizards   
@@ -2510,7 +2510,7 @@ a magic carpet ride to destroy
 the evil temple of cancer,   
 brick by brick, mortar by mortar   
     
-until they themselves die,   
+as they themselves die,   
 exhausted by their hunger.   
 I feel them enter my body   
 week after week wondering   
@@ -3023,7 +3023,7 @@ Two people alone at a restaurant table
 staring over cups of tea,   
 their faces erugate, smiling,   
 
-but with conspue coloring her eyes    
+but with contempt coloring her eyes    
 as they meet at their parents' suggestion   
 to end their lives of loneliness.   
 
@@ -3031,13 +3031,13 @@ He's halotic and she's meristic,
 in their own pygmean ways  
 as he attempts to flirt    
 
-sitting beneath the scrivello    
+sitting beneath elk antlers    
 mounted on the wall above his head   
 wishing he had a tyg full of ale   
 
 before him instead of this plastic smile,   
 the eyes with no depth, the nose   
-like a zibeb dangling on a vine.    
+like a raisin dangling on a vine.    
 
 As the silences grew longer 
 between them, she grabbed a napkin,    
@@ -3091,9 +3091,35 @@ to fill the void between them.
 
 Lost soul, lurking like a shadow     
 in the back of a cave, twenty centuries      
-of darkness surrounds your eyes,    
-colors each word that questions    
-everything and nothing.   
+of darkness surround your eyes,    
+color each word that questions    
+everything and nothing.  The truth,   
+what is the truth? What is the eternal?   
+Reach out your hand and touch    
+the answer in the air.  Feel the wisdom   
+of the air lifting you up   
+pulling you higher.   
+
+Shadow who never leaves your desk,   
+never exits the walls of your house    
+remember the air that first surrounded you  
+at birth, recall its hand lifting you up,   
+holding you against a light   
+that cut right through you.   
+
+Shadow in your darkest night,   
+mining twenty tombs of rot and debris,   
+mired in the catacombs of the past,    
+reach out to feel the air around you   
+lifting and swirling the spirits upward.  
+
+Shadow leaving your humble abode   
+to scale the snow capped peaks   
+of your soul, feel the air around you,   
+its tug and pull, its flirtatiousness.       
+Then let yourself go, like a cliff diver   
+springing out into the air, the air, the air.   
+
 
 ***
 ***
@@ -3183,7 +3209,7 @@ could least afford,
 that unsettling blue   
 
 of sky that filled    
-his dreams with a wonder
+his dreams with a wonder    
 that would cost him everything    
 and nothing at the same time.    
 
@@ -3205,9 +3231,7 @@ were the rock slides of his face,
 the tiny explosions of dynamite  
 in his brain as those around him   
 saw the faint outline of his body  
-being slowly absorbed by the sky.  
-
-
+slowly being absorbed by the sky.  
 
 ***
 ***
